@@ -12,4 +12,5 @@ Hi, my Name is Stephan. I live in [Hamburg-Germany](https://goo.gl/maps/nJu9nKwE
 ## Here're some Artists i'm listening to:
 
 - [Tech N9ne](https://www.youtube.com/channel/UCJdoPEnnkvS744DCD_12scQ)
-- [Eminem](https://www.youtube.com/channel/UCfM3zsQsOnfWNUppiycmBuw)
+- [Sexion d'Assaut](https://www.youtube.com/watch?v=NLAbYWKwrfk)
+- [Mode XL](https://www.youtube.com/watch?v=-vufEiLvuAY)
